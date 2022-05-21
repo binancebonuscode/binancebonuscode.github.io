@@ -1,1 +1,1 @@
-# binance-bonus-code.github.io
+# binancebonuscode.github.io
